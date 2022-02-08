@@ -1,1 +1,0 @@
-# MikolajLukasiewicz3F_1
